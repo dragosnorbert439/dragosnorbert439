@@ -2,7 +2,7 @@
 - 👀 I’m interested in pretty much everything that catches my eyes 🤓
 - 🌱 I’m currently a third year student at SAPIENTIA Hungarian University of Transylvania 
 - 📫 How to reach me: 📧 dragosnorbert439@gmail.com
-                       📱 (+40) 747 875 460
+                       📱 (+40) 0747 875 460
                        🧑 https://www.facebook.com/norbi.dragos
 
 
